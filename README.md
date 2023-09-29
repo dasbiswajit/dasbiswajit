@@ -28,7 +28,7 @@ Contact Me
 
 I'm always open to connecting with like-minded individuals. You can reach me through the following channels:
 
-Email: your-biswajitdas1@hotmail.com
+Email: biswajitdas1@hotmail.com
 LinkedIn: https://www.linkedin.com/in/biswajitdasuk/
 Twitter: @biswajitdasuk
-Feel free to get in touch if you have any questions, ideas, or just want to say hello. I'm looking forward to hearing from you!
+Feel free to get in touch if you have any questions, or ideas, or just want to say hello. I'm looking forward to hearing from you!
